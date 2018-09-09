@@ -41,3 +41,10 @@
 
 《红楼梦》是众所周知的名著，它值得读，广为流传，经典，让无数人为之倾倒，也使得众多学者对之进行详细研究，浪漫主义、写实主义、象征主义、虚无主义，各种意识形态，众说纷纭。《红楼梦》在我看来，并不是一个主义就能够说得清楚的，接下来我详细论述……
 
+## 翻译句子
+
+请运用认知科学四大原理，翻译以下句子：
+
+To arrive at the edge of the world's knowledge, seek out the most complex and sophisticated minds, put them in a room together, and have them ask each other the questions they are asking themselves.
+
+为探索知识边界，找寻世界复杂精密头脑，把他们共置一室，互相提问研究的问题。

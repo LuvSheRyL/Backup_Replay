@@ -10,3 +10,8 @@
 大脑是个吝啬鬼：用词简洁，善用 4*5 原则。
 
 ![血月](https://github.com/LuvSheRyL/Backup_Replay/blob/master/%E4%B8%8B%E8%BD%BD.jpg)
+
+黑色幕布上，明晃晃的，是一个孤零零的月亮。月光照在男孩身上。
+
+男孩自顾自地走着，如果不细看，看不出脸上的泪水。
+
